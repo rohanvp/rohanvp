@@ -1,1 +1,1 @@
-### Hi there 👋. I am Rohan Paranjpe, a Computer Science student at the University of Florida.
+### Hi there 👋. I am Rohan Paranjpe, a Computer Science graduate currently searching for full-time roles in Cybersecurity.
